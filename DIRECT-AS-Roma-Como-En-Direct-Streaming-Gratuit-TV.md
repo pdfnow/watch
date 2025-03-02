@@ -1,3 +1,11 @@
+📺📱👉◄◄🔴 https://t.co/MUJPDuUWE8
+
+📺📱👉◄◄🔴 https://t.co/MUJPDuUWE8
+
+📺📱👉◄◄🔴 https://t.co/MUJPDuUWE8
+
+
+
 Roma face à Como commence le 2 mars 2025 à 17:00 UTC au Stadio Olimpico stade, Rome ville de, Italy. C'est un match de Serie A.
 1 rencontres cette saison entre Roma et Como. A ce jour, Roma est classé 9e, tandis que Como est classé 13e. Comparez les meilleurs joueurs de chaque équipe ? Le systéme de notation Sofascore's assigne des notes spécific pour chaque joueur en fonction de plusieurs facteurs.
 Sur le live Sofascore, vous trouverez les face à face entre Roma et Como. Sofascore est la meilleure façon de suivre ce match avec plein de fonctionnalités. Par exemple vous pouvez:
