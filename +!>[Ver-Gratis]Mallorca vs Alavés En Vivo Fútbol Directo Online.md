@@ -1,20 +1,26 @@
-Mallorca se va a enfrentar a Deportivo Alavés el 2 mar 2025 a las 17:30 UTC en el estadio Estadi de Son Moix, en la ciudad de Palma, Spain. El partido es parte del/de la LaLiga.
-Mallorca jugó contra Deportivo Alavés en1 partidos está temporada. Actualmente, Mallorca está en 8º posición, mientras que Deportivo Alavés mantiene la 19º posición. ¿Buscas comparar el jugador con mayor rendimiento en ambos equipos? Sofascore asigna a cada jugador un rendimiento específico basado en muchas variables.
-En Sofascore puntuaciones en directo puedes encontrar todos los resultados de partidos precios entre Mallorca y Deportivo Alavés ordenados por sus partidos cara a cara. Sofascore también te ofrece la mejor forma de seguir las puntuaciones en directo de este partido con varias características deportivas. Así que puedes:
-Descubre quién anotó en un partido en directo
-Obtén información en tiempo real en el que cada equipo domino el partido utilizando la Inercia de Ataque
-Sigue detalladas estadísticas como la posesión de balón, tiros, corners, ocas. claras creadas, tarjetas, pases de la muerte, duelos y más
-Comprueba todos los partidos cara a cara - por ejemplo, en la última temporada Mallorca y Deportivo Alavés jugaron 2 partidos enfrentados
-Sigue todos los partidos en casa y fuera de casa de cada equipo en la LaLiga
-Comprueba como los votos de la comunidad de Sofascore en cada equipo cree que ganará este partido.
-Todas estas características pueden ayudarte a decidir en el pronóstico del partido entre Mallorca y Deportivo Alavés. Aunque Sofascore no ofrece directamente apuestas, ofrece las mejores posibilidades y te muestra que sitios ofrecen apuestas online. Las probabilidades en directo de U-TV son visibles en la sección de resultados en directo de Fútbol de Sofascore.
-¿Dónde ver el Mallorca contra Deportivo Alavés? Bajo la sección de Canales de televisión puedes encontrar la lista de todos los canales qué emiten el partido Mallorca - Deportivo Alavés en directo. Puedes incluso ver este partido en directo en streaming a través de nuestros socios en apuestas o hacer click en cualquier enlace en Sofascore para ver una emisión legal en directo.
-Detalles del evento:
-NOME: Mallorca - Deportivo Alavés
-DATA: 2 mar 2025
-HORA: 17:30 UTC
-SEDE: Estadi de Son Moix, Palma, Spain
-Más detalles:
-Mallorca marcador en directo, calendario y resultados
-Deportivo Alavés marcador en directo, calendario y resultados
-La aplicación Sofascore está disponible para Iphone y Ipad, en la Google Play de Android y para dispositivos móviles Windows. Puedes encontrarnos en todas las tiendas de aplicaciones en los diferentes lenguajes como "Sofascore". ¡Instala la aplicación Sofascore y sigue Mallorca Deportivo Alavés en directo desde tu dispositivo móvil!
+Mallorca - Alavés, en directo | LaLiga EA Sports hoy en vivo
+Sigue en directo el Mallorca-Alavés de la jornada 26 de LaLiga EA Sports
+Mostrar comentarios
+Mallorca - Alavés: horario y dónde ver en TV el partido de LaLiga EA Sports
+Última hora del Mallorca-Alavés de LaLiga EA Sports:
+Actualizar narración
+Equipos calentando
+Ya están los dos equipos sobre el terreno de juego calentando antes del choque. Mallorca y Alavés, con mucho en juego.
+
+
+Compartir en Twitter
+Arrasate le tiene tomada la medida
+Os dejo un dato que nos pasan los compañeros de OPTA sobre el míster bermellón y sus duelos ante el Alavés.
+
+El técnico del Mallorca, Jagoba Arrasate, ha ganado siete de sus nueve duelos ante el Alavés en LaLiga (1E 1D), frente a ningún otro adversario ha logrado más triunfos en la máxima categoría (siete también ante el Valencia y el Cádiz).
+
+
+Compartir en Twitter
+La predicción de Lorenzo Lara
+Mallorca 2-0 Alavés
+
+Mallorca y Alavés llegan al partido con trayectorias contrapuestas. Mientras que el Mallorca parece que ha remontado el vuelo tras el bache de enero y parte de febrero, el Alavés sigue en caída libre. Los baleares parten como favoritos para hacerse con los tres puntos
+
+Compartir en Twitter
+El duelo del partido
+Muriqi vs Kike García. Dos nueves de la vieja escuela. El delantero del Mallorca suma 6 goles y dos asistencias en LaLiga. Kike García, máximo goleador del Alavés, suma esta temporada 10 tantos en los 24 partidos que ha disputado hasta el momento.
