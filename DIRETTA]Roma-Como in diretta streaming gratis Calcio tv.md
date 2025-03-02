@@ -1,3 +1,8 @@
-Diretta Roma-Como ore 18: dove vederla in tv, in streaming e formazioni ufficiali
-All'Olimpico si affrontano due delle squadre più in forma del campionato: i giallorossi di Claudio Ranieri sfidano i lariani di Cesc Fabregas
-ROMA - Alle ore 18, allo stadio Olimpico, Roma e Como si affrontano nel 27° turno di Serie A. Di fronte due delle squadre più in forma del campionato. I giallorossi di Claudio Ranieri, infatti, hanno messo il turbo dopo un avvio di stagione da incubo sotto la guida prima di Daniele De Rossi e poi di Ivan Juric, inanellando una striscia di 10 risultati utili consecutivi in campionato, sette vittorie e tre pareggi. L'ultima sconfitta nel torneo, infatti, risale al 15 dicembre 2024, proprio contro i lariani, quando Gabrielloni e Nico Paz decisero la sfida del Sinigaglia con un clamoroso uno-due nel recupero. Momento magico anche per la formazione di Cesc Fabregas, reduce da due vittorie prestigiose: dopo il 2-0 al Franchi contro la Fiorentina, infatti, i lombardi hanno piegato tra le mura amiche il Napoli di Antonio Conte. I capitolini, dunque, vanno a caccia di punti preziosi per cercare di centrare un piazzamento europeo, i lariani per allontanarsi dalla zona retrocessione. 
+DIRETTA/ Roma Como (risultato 0-0) video streaming tv: Soulé esterno, Shomurodov davanti! (2 marzo 2025)
+Diretta Roma Como streaming video tv: orario, quote, probabili formazioni e risultato live della partita di Serie A, oggi domenica 2 marzo 2025
+Mauro Mantegazza Pubblicato 2 Marzo 2025 - Aggiornato alle ore 17:46
+Diretta Roma Como
+Diretta Roma Como, un'immagine dell'andata (Ansa)
+
+DIRETTA ROMA COMO (RISULTATO 0-0): LE FORMAZIONI UFFICIALI, VIA!
+Due delle migliori squadre delle ultime settimane si affrontano nella diretta Roma Como, partita intrigante quindi per molti motivi. I lariani arrivano all’Olimpico sulle ali dell’entusiasmo per le ultime due vittorie consecutive ottenute da Cesc Fabregas, che tra l’altro sono state anche di notevole spessore, perché una colta a Firenze e l’altra contro il Napoli. Insomma, il Como vuole continuare a recitare da mina vagante allontanandosi sempre più dalla zona a rischio retrocessione, ma non sarà evidentemente facile contro la Roma di Claudio Ranieri.
